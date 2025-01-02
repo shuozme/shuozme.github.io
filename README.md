@@ -4,5 +4,5 @@
 
 [Twitter](https://x.com/shuozme)
 
-[Email](https://i.postimg.cc/rsP9n3MD/email.png)
+[Email](https://www.helloshuo.com/email.png)
 
